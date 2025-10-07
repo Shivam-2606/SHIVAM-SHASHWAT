@@ -11,7 +11,7 @@
 
 - 💬 **Let's connect to grow together**
 
-- 📫 How to reach me **shivamshashwat2606@gmail.com**
+- 📫 How to reach me **https://linktr.ee/shivamshashwat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
